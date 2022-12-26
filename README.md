@@ -26,6 +26,5 @@
 
 ## Just follow☝️ me and Star⭐ my repository 
 
-## [Buy me a Coffee☕](https://www.buymeacoffee.com/spidy20)
-## [Donate me on PayPal](https://www.paypal.me/spidy1820)
-## Donate me via UPI - machinelearninghubai@okhdfcbank
+# [Buy me a Coffee☕](https://www.buymeacoffee.com/monishkumal)
+## Donate me on GPAY:-  monishkumar0420@okaxis
